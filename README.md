@@ -2,7 +2,7 @@
 
 🚀 **Technical Recruiter | Talent Acquisition Specialist | IT & Non-IT Hiring**  
 
-I'm a passionate **Technical Recruiter** with 3+ years of experience in **full-cycle recruitment** for **IT and technical domains**. I specialize in **sourcing, screening, and onboarding top talent** for roles like developers, testers, designers, and digital marketing professionals.  
+I'm a passionate **Technical Recruiter** with 3 years of experience in **full-cycle recruitment** for **IT and technical domains**. I specialize in **sourcing, screening, and onboarding top talent** for roles like developers, testers, designers, and digital marketing professionals.  
 
 📍 **Currently working at:** Cybrain Software Solutions Pvt. Ltd.  
 🌍 **Location:** Himachal Pradesh, India  
