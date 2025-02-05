@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Bani Thakur  
+# 👋 Hi, I'm Banita Thakur  
 
 🚀 **Technical Recruiter | Talent Acquisition Specialist | IT & Non-IT Hiring**  
 
